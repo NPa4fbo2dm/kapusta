@@ -2,4 +2,4 @@
 
 githubowa głowa pusta.
 
-Czekam aż mi odflagują konto, LOL.
+~~Czekam aż mi odflagują konto, LOL.~~ I cyk, zrobione.
